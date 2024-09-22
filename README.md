@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @stcheugy
+- 🖤 Divisional Grants and Contracts Analyst
+- ❤️‍🔥 Guadalupe devotee
+- 💔 Former burnout 
+- 🌱 Slowly learning javascript and C++ and creating automated budgets and grant tracking documents
+- 💞️ I sure hope Skynet-senpai notices me UwU
+- 📫 Meridianverso.net
